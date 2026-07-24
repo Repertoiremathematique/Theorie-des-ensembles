@@ -8,8 +8,8 @@ Krivine
 
 Kunen
 
-Neunhäuserer, J. 12² beautiful mathematical theorems with short proofs
-
 Leroy
+
+Neunhäuserer, J. 12² beautiful mathematical theorems with short proofs
 
 Patarin
